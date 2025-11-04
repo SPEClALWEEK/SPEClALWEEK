@@ -1,3 +1,2 @@
-" hello what are you doing there? "
-![Image](https://github.com/user-attachments/assets/7a051826-5ff9-4736-8a53-804544346d51)
-BY OOMF / CASHIE!! ILLY ILYY
+By me ^3^
+<img width="2480" height="2000" alt="Image" src="https://github.com/user-attachments/assets/24592158-d365-446a-b602-487b10f988f3" />
