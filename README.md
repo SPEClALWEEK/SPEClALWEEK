@@ -1,2 +1,2 @@
-By me ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
-<img width="2480" height="2000" alt="Image" src="https://github.com/user-attachments/assets/24592158-d365-446a-b602-487b10f988f3" />
+kill the bird one
+![Image](https://github.com/user-attachments/assets/e71ba75d-90f9-4463-87b5-a8fcba5b2903)
