@@ -1,1 +1,2 @@
-<img width="637" height="641" alt="Image" src="https://github.com/user-attachments/assets/ed27c1f8-bc71-4967-ba16-a6512bfeb793" />
+why u bully meh
+<img width="736" height="981" alt="Image" src="https://github.com/user-attachments/assets/b50c63d6-81d1-4cbd-bfab-14a4b64c277d" />
